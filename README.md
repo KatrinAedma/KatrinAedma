@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KatrinAedma
+- 👀 I'm interested in education quality and studying at the moment to get more knowledge up to my 25+ years studies and experience on education field...
+- 🌱 I’m currently learning Educational technology and use this program for studies of Basics of Game Development
+- 💞️ I’m at the moment have only 1 aim - to finish my course :) 
